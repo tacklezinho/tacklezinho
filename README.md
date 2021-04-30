@@ -1,4 +1,4 @@
-- 👋 Oi, Sou o @tacklezinho
+- 👋 Oi, Sou o Tackleberry
 - 💞️ Sou o Fundador da White Servidores
 - 🌱 Conhecimento Básico em Programação
 - 📫 Contato Via Discord: Tackleberry#8989
